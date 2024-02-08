@@ -1,4 +1,4 @@
--  Hi, I’m @Ginger13123 ✨ 
+-  Hi, I’m @Ginger ✨ 
 -  I’m interested in coding and orchestra ✨     
 -  I’m currently learning HTML5 and will start learning Javascript ✨
 -  Pronouns: He/Him ✨
